@@ -1,0 +1,1 @@
+# mindspa_wordpress
